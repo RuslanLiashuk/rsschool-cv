@@ -5,4 +5,4 @@
 5. -
 6. -
 7. **Military Academy of the Republic of Belarus**, faculty - *Communications and automated control systems, specialty* - Automated information processing systems.
-8. .
+8. my level of English is A2.
